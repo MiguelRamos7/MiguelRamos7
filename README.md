@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ... africano
 - ⚡ Fun fact: ... ficar rico dormindo
 
-!(https://i.makeagif.com/media/5-10-2023/M47Nf8.gif)
+![](https://i.makeagif.com/media/5-10-2023/M47Nf8.gif)
