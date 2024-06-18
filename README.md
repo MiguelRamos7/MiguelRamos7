@@ -8,4 +8,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... me grita
 - 😄 Pronouns: ... africano
 - ⚡ Fun fact: ... ficar rico dormindo
--->
+
+![](https://i.makeagif.com/media/5-10-2023/M47Nf8.gif)
